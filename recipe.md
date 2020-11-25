@@ -1,0 +1,1 @@
+Boil milk, put milk in a bowl and crack the egg, then mix milk and egg, add strawberries to it, mix with batter, but it oven for baking!
